@@ -1,4 +1,4 @@
-**Eduardo N9**
+****Eduardo N9 Rafael S. N43****
 
 # PensamentoComputacional-1b
 
